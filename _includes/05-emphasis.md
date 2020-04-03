@@ -1,2 +1,2 @@
-**Humble**
-_What a **Humble** Bundle_
+***Humble**
+*_What a **Humble** Bundle_
